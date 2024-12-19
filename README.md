@@ -1,0 +1,1 @@
+# 1000-rublej-za-registraciyu-vyvod-srazu-bez-vlozhenij
